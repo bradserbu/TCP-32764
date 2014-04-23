@@ -1,3 +1,6 @@
+---------------------------------------
+THANK YOU FOR THIS!!!!! - AMOUTHFULOFBS
+---------------------------------------
 It seems that some journalists don't take the time to read my slides, to do some researches or to ask for details.
 I don't want to lose more of my time so here is an e-mail exchange with [@R_Chirgwin](https://twitter.com/R_Chirgwin) that resume my feelings/what you should know.
 
